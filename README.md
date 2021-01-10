@@ -1,6 +1,6 @@
-![](https://visitor-badge.laobi.icu/badge?page_id=ssonje.sonje)
-
 ### Hi, I'm Sanket Sonje... But you can call me "sonje"👋
+
+![](https://visitor-badge.laobi.icu/badge?page_id=ssonje.sonje)
 
 ## ✉️ Find me on:
 <p align="center">
